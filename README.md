@@ -1,4 +1,4 @@
--👋 Oi, estou @LilyhGitHub
+-👋 Oi, sou @LilyhGitHub
 - 👀 Tenho interesse em projetos educacionais inovadores.
 - 🌱 Aprendizado atual:** utilização de plataformas educacionais digitais...
 - 📫 Como chegar até mim educalili@hotmail.com
